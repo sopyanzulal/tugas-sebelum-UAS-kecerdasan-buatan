@@ -1,0 +1,1 @@
+# tugas-sebelum-UAS-kecerdasan-buatan
